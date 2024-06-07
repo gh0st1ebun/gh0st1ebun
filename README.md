@@ -11,7 +11,7 @@ __basic info:__
 
 __ponytown:__ _usually at spawn, bakery, library, or on a party island (really, i go anywhere)_
 
-__interact if:___you are a kpop stan, therian + otherkin, age regressor, any other minority_
+__interact if:__ _you are a kpop stan, therian + otherkin, age regressor, any other minority_
 
 __dni if:__ _basic dni like racism, homophobia, pedophilia, transphobia, ect. also, if you anti kpop, therians + otherkin, xenogenders, and age regressors/dreamers_
 
