@@ -1,16 +1,22 @@
-## Hi there 👋
+hello!!
 
-<!--
-**gh0st1ebun/gh0st1ebun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+__basic info:__ 
+- my name is bun
+- i am 18 years old
+- pronouns are he/it + neos | boyflux, pansexual, polyamorous, and aroace.
+- i am neurodivergent
+- from california, USA
+- i am therian + otherkin, an age regressor, and a kpop stan
+- i love mbti and would love to chat about it (i'm an entp!!)
 
-Here are some ideas to get you started:
+__ponytown:__ _usually at spawn, bakery, library, or on a party island (really, i go anywhere)_
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+__interact if:__ _you are a kpop stan, therian + otherkin, age regressor, _
+__dni if:__ _basic dni like racism, homophobia, pedophilia, transphobia, ect. also, if you anti kpop, therians + otherkin, xenogenders, age regressors, 
+
+__do:__ _boop me, whisper to me, rant to me, give me nicknames, flirt with me, ask me any questions, tease me, and suggest ideas!!_
+__do not:__ _friend me without asking, vent to me without asking, or criticize behaviors/choices/hobbies_
+
+__extra:__ 
+_- if you need help, do whatever you need to do if someone is harrassing you. whisper to me, and i'll chase them off._
+_- i ult &team, txt, stray kids, and enhypen. i stan ateez, kep1er, ive, and (g)i-dle. i'm getting into exo, p1harmony, and twice.
