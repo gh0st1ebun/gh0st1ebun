@@ -15,7 +15,7 @@ __interact if:__ _you are a kpop stan, therian + otherkin, age regressor, any ot
 
 __dni if:__ _basic dni like racism, homophobia, pedophilia, transphobia, ect. also, if you anti kpop, therians + otherkin, xenogenders, and age regressors/dreamers_
 
-__do:__ _boop me, whisper to me, rant to me, give me nicknames, flirt with me, ask me any questions, tease me, and suggest ideas!!_
+__do:__ _boop me, whisper to me, rant to me, give me nicknames, flirt with me, ask me any questions, tease me, interact while regressed, and suggest ideas!!_
 
 __do not:__ _friend me without asking, vent to me without asking, or criticize my behaviors/choices/hobbies_
 
