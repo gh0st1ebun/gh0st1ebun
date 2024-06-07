@@ -22,3 +22,4 @@ __do not:__ _friend me without asking, vent to me without asking, or criticize m
 __extra:__ 
 - if you need help, do whatever you need to do if someone is harrassing you. whisper to me, and i'll chase them off.
 - i ult &team, txt, stray kids, and enhypen. i stan ateez, kep1er, ive, and (g)i-dle. i'm getting into exo, p1harmony, and twice.
+- other than ponytown, i'm mostly on discord + own a discord server for kpop stans who play ponytown, if you want to join it, let me know, along with if you want to add me on discord!!
